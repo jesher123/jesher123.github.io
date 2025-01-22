@@ -4,9 +4,14 @@
 # About Me  
 
 ## My Interests  
-1. I love creating Hip Hop/ R&B music to esteem God
-2. I also like gardening and harvesting herbs as well as vegetables with healing properties
-3. My academic interests are music production, as well as coding/ hacking and the medicinal properties of fruits and vegetables
+1. I love creating Hip Hop/R&B music to esteem God. Music is such a powerful way to express my faith and connect with others. I enjoy making beats and writing lyrics that reflect themes of love, purpose, and spirituality. Hip Hop and R&B are genres that allow me to share uplifting messages and inspire others to grow in their faith, while also connecting with them through something they enjoy.  
+
+2. Another thing I’m really into is gardening, especially growing herbs and vegetables with healing properties. There’s something so rewarding about nurturing plants that not only taste great but also have medicinal benefits. It feels like a natural way to take care of others as well as my own health, and I really enjoy the peace within  gardening the process.
+
+3. When it comes to my academic interests, I'm passionate about music production, coding/hacking, and the medicinal properties of plants. In terms of music, I’m always learning more about sound design, beat-making, and mixing. I want to get better at using different software and tools to bring my musical vision to life. On the coding side, I’m fascinated by how technology can enhance creativity, whether it's creating software that helps with music production or exploring ethical hacking and tech that could contribute to health or wellness.
+
+Speaking of health, I’m really interested in the medicinal qualities of fruits and vegetables. As I mentioned before, there’s so much to learn about how certain plants can heal or boost our well-being, and I want to dive deeper into that. I’m always looking for ways to tie my interests in music, tech, and health together, whether it’s through creating apps or just spreading knowledge about how nature can help us heal.
+
 
 
 ## Websites I Recommend:
