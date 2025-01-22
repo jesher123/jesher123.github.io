@@ -4,6 +4,10 @@
 # About Me  
 
 ## My Interests  
+1. I love creating Hip Hop/ R&B music to esteem God
+2. I also like gardening and harvesting herbs as well as vegetables with healing properties
+3. My academic interests are music production, as well as coding/ hacking and the medicinal properties of fruits and vegetables
+
 
 ## Websites I Recommend:
 
